@@ -1,5 +1,5 @@
 - 👋 Hlww, I’m @ahmad-cit22 from Dhaka, BD.
-- 👀 I’m interested in the IT sector.
+- 👀 I’m interested in working in the world of IT.
 - 🌱 I’ve learned Web Design and currently learning Web Development.
 - 📫 To reach me - contact at n.ahmad.web.cit22@gmail.com
 
